@@ -1,37 +1,15 @@
-About Me
-My name is Iaian Thompson. I am a 21-year-old marketing digital marketing specialist. Achieving my marketing certification through chegg skills I exceed in:
-Email Marketing
-SEO
-URL Slugs
-Content Marketing
-A/B Testing
-Buyers Persona
-Style Guides
-Creative Briefs
-Blogs
-About Me
+My name is Iaian Thompson. I am a 21-year-old marketing digital marketing specialist. Achieving my marketing certification through Chegg skills I exceed in:
+- Email Marketing
+- SEO
+- URL Slugs
+- Content Marketing
+- A/B Testing
+- Buyers Persona
+- Style Guides
+- Creative Briefs
+- Blogs
 
-My name is Iaian Thompson. I am a 21 year old marketing digital marketing specialist. Achieving my marketing certification through chegg skills I exceed in:
-
-Email Marketing
-
-SEO
-
-URL Slugs
-
-Content Marketing
-
-A/B Testing
-
-Buyers Persona
-
-Style Guides
-
-Creative Briefs
-
-Blogs
-
-Since 2019 I joined the internet, around the rise of TikTok, and with other various platforms taking the concept of short-form content and running with it. I excel at creating meaning behind few words and making a big impact through nostalgia and being genuine. Working in the marketing field I have given many musicians & and small labels with their marketing while also adapting my content to adhere to internet standard. Working on the marketing field I have given several musicians & and small labels with their marketing while also adapting my content to adhere to internet standard.  I thrive to make the best of the situation, if a post, blog, video, or any other form of advertisement doesn't go in its intended direction, we learn from it and advance and learn from it. 
+Since 2019 I joined the internet, around the rise of TikTok, and with other various platforms taking the concept of short-form content and running with it. I excel at creating meaning behind a few words and making a big impact through nostalgia and being genuine. Working in the marketing field I have given many musicians & and small labels with their marketing while also adapting my content to adhere to internet standards. Working in marketing, I have given several musicians & and small labels with their marketing while also adapting my content to adhere to internet standards. I strive to make the best of the situation, if a post, blog, video, or any other form of advertisement doesn't go in its intended direction, we learn from it and advance and learn from it. 
 
 
 
